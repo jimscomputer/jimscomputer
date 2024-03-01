@@ -1,5 +1,6 @@
 i have DU skins, but im super disconnected from the community, i do not associate or support them. 
-if i follow i think you're super cool and wanna talk...i just am too awkward to do so
+
+if i follow i think you're super cool and wanna talk to you...i just am too awkward to do so
 <!--
 **jimscomputer/jimscomputer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
